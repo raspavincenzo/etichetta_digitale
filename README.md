@@ -1,1 +1,1 @@
-# etichetta_digitale
+# etichetta_digitale 3 L
